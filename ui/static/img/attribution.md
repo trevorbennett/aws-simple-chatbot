@@ -1,0 +1,1 @@
+Hand drawn icons courtesy of Juicy_Fish: https://www.flaticon.com/authors/juicy-fish
